@@ -5,4 +5,4 @@
 - ☁️ Specialized in Cloud Computing in 2023 by University of Uberaba
 - 👔 Project Management MBA by Cruzeiro do Sul University
 
-I don't do social media, but I have a LinkedIn page: linkedin.com/in/kleberdotnet/
+I don't do social media, but I have a LinkedIn page: www.linkedin.com/in/kleberdotnet/
